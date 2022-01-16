@@ -1,3 +1,3 @@
-## Test Blog🧑‍🤝‍🧑
+## How to block ads on Android?[ Adguard Alternative]🧑‍🤝‍🧑
 
-It is a test post of hashnode for backing up on github🌸
+[Content will be updated soon]🌸
